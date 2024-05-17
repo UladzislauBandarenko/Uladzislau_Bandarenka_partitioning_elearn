@@ -1,0 +1,1 @@
+# Uladzislau_Bandarenka_partitioning_elearn
